@@ -3,3 +3,4 @@ gosto de pizza macarrão e carne de frango
 torço pro palmeiras 
 curto videos de edit, animes 
 escuto phonk 
+gosto de cobra kai 
